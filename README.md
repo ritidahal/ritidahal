@@ -44,6 +44,6 @@ If you're working on projects related to:
 ### 📫 Get in Touch
 📧 ritidahal@gmail.com  
 📍 Based in the U.S. | Originally from Nepal 🇳🇵  
-🌐 [LinkedIn](https://www.linkedin.com/in/ritidahal/)  
+🌐 [LinkedIn](https://www.linkedin.com/in/riti-dahal-15aa69163/)  
 
 ---
